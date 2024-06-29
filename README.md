@@ -1,0 +1,1 @@
+# EduManage--MIS-portal-for-students-and-teachers
